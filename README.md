@@ -1,0 +1,2 @@
+# bakdaulet.github.io
+Bakda
